@@ -7,9 +7,9 @@
 
 ## En Raywal 
 
-![image](https://github.com/user-attachments/assets/7f2b7bc9-6cd6-4325-b873-dc8dcd705243)
+![image](https://github.com/user-attachments/assets/0b8fdae3-f2b6-4727-94f2-e3ed1805f0a4)
 
 ![image](https://github.com/user-attachments/assets/aee341f2-0c29-4974-8b7c-9a67b464dc0a)
 
-![image](https://github.com/user-attachments/assets/b3bf0e70-4758-4144-83c7-af631a42bd51)
+![image](https://github.com/user-attachments/assets/04b53ac5-125f-4e47-9b1a-10877d69da0f)
 
